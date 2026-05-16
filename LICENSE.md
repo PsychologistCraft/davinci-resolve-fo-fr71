@@ -1,4 +1,4 @@
-# 
+# Enhance DaVinci Resolve for PC | DaVinci Resolve for Windows with DaVinci Resolve for PC | DaVinci Resolve for Windows updated Effect: title-animation & collaboration-tools, the
 
 
 
